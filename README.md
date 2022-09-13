@@ -1,0 +1,1 @@
+# Mapa_Cobertura_vegetal_Stadisti
